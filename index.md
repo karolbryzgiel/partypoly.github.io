@@ -5,4 +5,4 @@ Partypoly does not collect any personal information from any of your use of our 
 
 ### Support or Contact
 
-Having trouble with Partypoly? [contact support](partypolyapp@gmail.com) and we’ll help you sort it out. E-mail: partypolyapp@gmail.com
+Having trouble with Partypoly? Contact us via email partypolyapp@gmail.com and we’ll help you sort it out.
